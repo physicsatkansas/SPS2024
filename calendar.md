@@ -29,7 +29,7 @@ Week of 19th: Exec meeting @ TBA
 09/11/24: First (open) exec meeting @ 6 PM
 - discuss action items from 07/29/24
 
-09/13/24: Water gun fight @ TBA
+09/13/24: Water gun fight @ 4:00 PM
 - Might be doing something with ROTC?
 - Need water gun, refreshments, tent
 - Might try to dinner after??
