@@ -1,6 +1,6 @@
 # Calendar
 
-Week of 19th: Exec meeting @ TBA
+08/21/24: Exec meeting @ 11:00 AM
 - meeting to discuss details regarding unionfest and the first meeting
 
 08/24/24: Unionfest/Department picnic @ 10 AM
