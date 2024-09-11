@@ -35,6 +35,29 @@
 - Might try to dinner after??
 - Reach out to Kristin
 
-09/18/24: second meeting @ 6 PM
-- TBA
-- probably need to reach out to professors to start speaking
+09/18/24: meeting @ 6 PM, Malott 3005 
+- Professional development basics
+
+10/02/24: meeting @ 6 PM, Malott 3005
+
+10/09/24: meeting @ 6 PM, Malott 3005
+- exec meeting 
+
+10/16/24: meeting @ 6 PM, Malott 3005
+
+10/30/24: meeting @ 6 PM, Malott 3005
+
+11/06/24: meeting @ 6 PM, Malott 3005
+- exec (perhaps??) 
+
+11/13/24: meeting @ 6 PM, Malott 3005
+
+11/20/24: meeting @ 6 PM, Malott 3005
+- exec (planned)  
+
+
+11/27/24: meeting @ 6 PM, Malott 3005
+- Thanksgiving break, needs rescheduled
+
+12/11/24: meeting @ 6 PM, Malott 3005
+- Last week of classes
