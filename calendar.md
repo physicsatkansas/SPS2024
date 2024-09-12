@@ -39,6 +39,8 @@
 - Professional development basics
 
 10/02/24: meeting @ 6 PM, Malott 3005
+- Faculty talk??
+- Movie night woo!
 
 10/09/24: meeting @ 6 PM, Malott 3005
 - exec meeting 
@@ -48,16 +50,13 @@
 10/30/24: meeting @ 6 PM, Malott 3005
 
 11/06/24: meeting @ 6 PM, Malott 3005
-- exec (perhaps??) 
+- exec
 
 11/13/24: meeting @ 6 PM, Malott 3005
 
-11/20/24: meeting @ 6 PM, Malott 3005
-- exec (planned)  
+11/20/24: "Fun"
 
-
-11/27/24: meeting @ 6 PM, Malott 3005
-- Thanksgiving break, needs rescheduled
+12/04/24: Last meeting
 
 12/11/24: meeting @ 6 PM, Malott 3005
 - Last week of classes
