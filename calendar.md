@@ -58,5 +58,3 @@
 
 12/04/24: Last meeting
 
-12/11/24: meeting @ 6 PM, Malott 3005
-- Last week of classes
