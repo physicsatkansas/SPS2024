@@ -1,0 +1,70 @@
+#+TITLE: SPS Executive Meeting Minutes (09/11/24)
+#+AUTHOR: Joseph Hand
+
+* Introduction
+** Parker bragged about their Arch (BTW) setup.
+*** There were technical difficulties.
+
+** Call to order
+** Roll call
+All listed below were present:
+- Joseph
+
+** Approval of previous minutes
+* Old Business
+** Bank Account Access
+Dane and Parker will go to the bank.
+We have a letter from Kristin.
+
+** Game Making
+* New Business
+** Long-terms plans
+*** Charity
+Giving money to the community
+Ideas:
++ Science in Drag
++ Possibly incorporating charity into the game jam event.
++ Collaboration with other STEM clubs
+*** Budget
++ 2022 budget
++ Keep department costs low, ideally under $2000
+*** Outreach/Demos
++ New demos requires time and money
++ Contact faculty about donating equipment
++ Make documentation for each demo
++ Meeting to make new demos (such as a Saturday)
++ Have a larger group of people handling outreach
++ Getting to more outreach events
++ Make outreach more organized to reduce the burden of organization
+  + More professional
++ Add astronomy demos
++ Donation box during outreach
++ Telescope nights
+  + People with telescopes: Joseph, Gabi, Seth's Uncle
+  + Radio telescope
++ Demos channel on the Discord
++ NASA Hackathon Oct 2-3
++ Lunar Eclipse Mar. 13-14
++ Demos/outreach comittee
+  + Tyson will organize this
+*** Fundraising
++ Tabled for next meeting
+** Plan for Fall 2024 Meetings
++ Meeting on 9/18: Professional development
++ Next exec meeting on 10/9, another one on 11/6
++ Reschedule 11/27 meeting to 11/20, make it a fun meeting
++ Reschedule last meeting to 12/4 to allow for studying for finals
++ Plan faculty talk on 10/2
+  + Backup is Nigel Cheese/movie night
+
+* Action Items
++ Dane and Parker will go to the bank with Kristin's letter.
++ Joseph will put together a document about the game jam and send it to Dhwani.
++ Dhwani will reach out to the ACM exec regarding the game jam.
++ Joseph will put together a proposal for a charity event.
++ Dayne will have an accurate budget before next meeting.
++ Tyson will organize and hold a demos comittee meeting before next meeting.
++ Parker will make a demos channel
++ Parker will email Kristin about schedule changes
++ Parker will reach out to faculty for 10/2 meeting
++ Parker will fill out rest of schedule
