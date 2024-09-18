@@ -48,6 +48,7 @@
 10/16/24: meeting @ 6 PM, Malott 3005
 
 10/30/24: meeting @ 6 PM, Malott 3005
+- Dr. Camarda visits (30 minutes)
 
 11/06/24: meeting @ 6 PM, Malott 3005
 - exec
