@@ -39,23 +39,28 @@
 - Professional development basics
 
 10/02/24: meeting @ 6 PM, Malott 3005
-- Faculty talk??
+- Faculty talk or
 - Movie night woo!
 
 10/09/24: meeting @ 6 PM, Malott 3005
 - exec meeting 
 
 10/16/24: meeting @ 6 PM, Malott 3005
+- faculty talk or workshop
 
 10/30/24: meeting @ 6 PM, Malott 3005
 - Dr. Camarda visits (30 minutes)
+- "Fun"
 
 11/06/24: meeting @ 6 PM, Malott 3005
 - exec
 
 11/13/24: meeting @ 6 PM, Malott 3005
+- faculty talk or workshop
 
-11/20/24: "Fun"
+11/20/24: 
+- "Fun" or faculty talk
 
 12/04/24: Last meeting
+- Internship workshop
 
