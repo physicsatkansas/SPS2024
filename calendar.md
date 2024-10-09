@@ -39,28 +39,31 @@
 - Professional development basics
 
 10/02/24: meeting @ 6 PM, Malott 3005
-- Faculty talk or
 - Movie night woo!
 
 10/09/24: meeting @ 6 PM, Malott 3005
 - exec meeting 
 
 10/16/24: meeting @ 6 PM, Malott 3005
-- faculty talk or workshop
+- coding workshop
 
 10/30/24: meeting @ 6 PM, Malott 3005
 - Dr. Camarda visits (30 minutes)
-- "Fun"
+- Halloween Celebration/"Scary" journal club
 
 11/06/24: meeting @ 6 PM, Malott 3005
 - exec
 
 11/13/24: meeting @ 6 PM, Malott 3005
-- faculty talk or workshop
+- Latex workshop
+- possible sign-up deadline for CoC
 
-11/20/24: 
-- "Fun" or faculty talk
+11/18/24: possible sign-up deadline for CoC
 
+11/20/24: meeting @ 6 PM, Malott 3005
+- Demo training then dinner
+
+11/24/24: Carnival of Chemistry @ 12-5 1160 GL
+ 
 12/04/24: Last meeting
 - Internship workshop
-
