@@ -26,7 +26,7 @@ the game jam will be as follows (all in the year 2025):
 - 4/14 (morning): Winners announced
 
 Judges will be required to judge games within the two weeks after the jam. They
-will also write a short statement discussing why they wan't to be a judge for
+will also write a short statement discussing why they want to be a judge for
 this event.
 
 Each team must consist of at most three people, none of which can also be a
