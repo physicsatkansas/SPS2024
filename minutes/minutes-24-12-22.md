@@ -11,7 +11,7 @@ New Business
     - Delgado
     - Rogan
     - Rudnick
-- Responding to KP's email
+- Responding to Kirkpatricks' email
     - creating formal list of expectations
         - event plans, training volunteers, etc
     - how to communicate with department
@@ -44,7 +44,7 @@ New Business
 Action Items
 ---
 - [ ] Parker: reach out to profs about talking about research/faculty talk (before spring starts)
-- [ ] Parker: schedule meeting with KP
+- [ ] Parker: schedule meeting with Kirkpatrick
     - make ideas presentable for meeting
 - [ ] Dayne: follow up w/ people on percentage nights
 - [ ] Parker: Shoot email to department leadership discussing our picks.
